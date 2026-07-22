@@ -5,7 +5,7 @@ my sites aren't done js know i'm very socially avoidant, be patient. thanks. thi
 <img src="https://komarev.com/ghpvc/?username=catbaret&style=for-the-badge&color=c86c78&base=7439&label=ㅤ_ㅤ_ㅤ_⦮_⦯_⟆_ㅤ_ㅤ_ㅤ" /> <p align="center">
  <p align="center">
   <p align="center">
- <img src="https://i.pinimg.com/736x/a1/da/70/a1da702292e06268b51e5a8cba89912f.jpg" width="250" height="260%"/>
+ <img src="https://i.pinimg.com/736x/c5/11/e1/c511e14d2e1dc5f5fd35df675c73d52b.jpg" width="250" height="260%"/>
 <p align="center">
  <a href= "https://listography.com/shrikes"> listo</a> ㅤ <a href= "https://lycanpyre.atabook.org"> ata</a> ㅤ <a href= "https://rentry.co/wolfslayer"> ph rentry</a> 
 </p>
