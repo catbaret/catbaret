@@ -1,16 +1,17 @@
-## Hi there 👋
-
-<!--
-**catbaret/catbaret** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-Here are some ideas to get you started:
-
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+<p align="center">
+</a>
+<img src="https://komarev.com/ghpvc/?username=catbaret&style=for-the-badge&color=c86c78&base=7439&label=ㅤ_ㅤ_ㅤ_⦮_⦯_⟆_ㅤ_ㅤ_ㅤ" /> <p align="center">
+ <p align="center">
+<p align="center">
+ <a href= "https://listography.com/shrikes"> listo</a> ㅤ <a href= "https://lycanpyre.atabook.org"> ata</a> ㅤ <a href= "https://rentry.co/wolfslayer"> ph rentry</a> 
+</p>
+<p align="center">
+<p align="center">
+  <a href="https://github.com/kittinan/spotify-github-profile">
+    <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312jtoobapz4qgguspqhr6lxf6pa&cover_image=true&theme=novatorem&show_offline=false&background_color=121212&interchange=false&profanity=false&hide_remaster=false&bar_color=b07373&bar_color_cover=false">
+  </a>
+</p>
+  </a>
+</p>
+<p align="center">
+my sites aren't done js know i'm very socially avoidant, be patient. thanks. this is a wip. <br>
