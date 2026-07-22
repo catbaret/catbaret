@@ -1,4 +1,9 @@
 <p align="center">
+my sites aren't done js know i'm very socially avoidant, be patient. thanks. this is a wip. <br>
+
+<p align="center">
+ <img src="https://i.pinimg.com/736x/a1/da/70/a1da702292e06268b51e5a8cba89912f.jpg" width="250" height="260%"/>
+<p align="center">
 </a>
 <img src="https://komarev.com/ghpvc/?username=catbaret&style=for-the-badge&color=c86c78&base=7439&label=ㅤ_ㅤ_ㅤ_⦮_⦯_⟆_ㅤ_ㅤ_ㅤ" /> <p align="center">
  <p align="center">
@@ -13,5 +18,3 @@
 </p>
   </a>
 </p>
-<p align="center">
-my sites aren't done js know i'm very socially avoidant, be patient. thanks. this is a wip. <br>
