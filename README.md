@@ -2,7 +2,7 @@
 my sites aren't done js know i'm very socially avoidant, be patient. thanks. <br>
 <p align="center">
 </a>
-<img src="https://komarev.com/ghpvc/?username=catbaret&style=for-the-badge&color=862a2d&base=7439&label=ㅤ_ㅤ_ㅤ_⦮_⦯_⟆_ㅤ_ㅤ_ㅤ" /> <p align="center">
+<img src="https://komarev.com/ghpvc/?username=catbaret&style=for-the-badge&color=13312f&base=7439&label=ㅤ_ㅤ_ㅤ_⦮_⦯_⟆_ㅤ_ㅤ_ㅤ" /> <p align="center">
  <p align="center">
   <p align="center">
  <img src="https://i.pinimg.com/736x/c5/11/e1/c511e14d2e1dc5f5fd35df675c73d52b.jpg" width="250" height="260%"/>
