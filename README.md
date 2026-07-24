@@ -1,6 +1,4 @@
 <p align="center">
-my sites aren't done js know i'm very socially avoidant, be patient. thanks. <br>
-<p align="center">
 </a>
 <img src="https://komarev.com/ghpvc/?username=catbaret&style=for-the-badge=plastic&color=000000&base=7439&label=ㅤ_ㅤ_ㅤ_⦮_⦯_⟆_ㅤ_ㅤ_ㅤ" />ㅤ( ᵔ⩊ᵔ )ㅤ<img src="https://64.media.tumblr.com/55c626e7b5e1b4bc81d6d73f9d3c549b/23a5bc982455da67-d1/s250x400/374c5ea5ad50516fa735ea7c7ba2c963d94a0798.gifv"/> <p align="center">
  <p align="center">
