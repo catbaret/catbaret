@@ -5,7 +5,7 @@
   <p align="center">
  <img src="https://i.ibb.co/5WKXCxkG/ghimg.png" width="280" height="260%"/>
 <p align="center">
-‿ ۪ㅤㅤ<a href= "https://listography.com/shrikes"> listo</a> ㅤ <a href= "https://cabaretfreak.atabook.org"> ata</a> ㅤ <a href= "https://rentry.co/wolfslayer"> ph rentry</a>ㅤㅤ ۪‿
+‿ ۪ㅤㅤ<a href= "https://listography.com/shrikes"> LISTO</a> ㅤ <a href= "https://cabaretfreak.atabook.org"> ATABOOK</a> ㅤ <a href= "https://rentry.co/turifag"> PH RENTRY</a>ㅤㅤ ۪‿
 </p>
 <p align="center">
   </a>
