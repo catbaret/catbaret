@@ -5,7 +5,7 @@
   <p align="center">
  <img src="https://i.ibb.co/5WKXCxkG/ghimg.png" width="280" height="260%"/>
 <p align="center">
-‿ ۪ㅤㅤarmand\kitty. i like iwtv and don't talk to or approach <br> people, that's all. if you know my links, good job.ㅤㅤ ۪‿
+‿ ۪ㅤㅤarmand\kitty. i like iwtv and don't talk to or approach <br> people, that's all. .co/danmamd for minimal info.ㅤㅤ ۪‿
 </p>
 <p align="center">
   </a>
