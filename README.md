@@ -5,7 +5,8 @@
   <p align="center">
  <img src="https://i.ibb.co/5WKXCxkG/ghimg.png" width="280" height="260%"/>
 <p align="center">
-‿ ۪ㅤㅤarmand\kitty. i like iwtv and don't talk to or approach <br> people, that's all. .co/danmand for minimal info.ㅤㅤ ۪‿
+‿ ۪ㅤㅤarmand\kitty. i like iwtv and don't talk to or approach people,ㅤㅤ ۪‿ <br> 
+ <a href= "https://listography.com/shrikes"> LISTO</a> ㅤ <a href= "https://cabaretfreak.atabook.org"> ATABOOK</a> ㅤ <a href= "https://rentry.co/danmand"> PH RENTRY</a>
 </p>
 <p align="center">
   </a>
