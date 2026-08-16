@@ -1,4 +1,4 @@
-majorr wip rn, ignore the uglyness
+majorr wip rn, ignore the uglyness..no link for p.cc yet..
 <p align="center">
 </a>
 ( ᵔ⩊ᵔ )ㅤ<img src="https://komarev.com/ghpvc/?username=catbaret&style=for-the-badge=plastic&color=521f1e&base=7439&label=ㅤ_ㅤ_ㅤ_⦮_⦯_⟆_ㅤ_ㅤ_ㅤ" /> <br>
