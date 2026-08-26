@@ -1,6 +1,3 @@
-lowkey losing my spark, i dont think <br>
-im remaking anything anytime soon. <br>
-sorry. i'm not doing ok at all. 😓
 <p align="center">
 </a>
 <img src="https://komarev.com/ghpvc/?username=catbaret&style=for-the-badge=plastic&color=521f1e&base=7439&label=ㅤ_ㅤ_ㅤ_⦮_⦯_⟆_ㅤ_ㅤ_ㅤ" /> <br>
