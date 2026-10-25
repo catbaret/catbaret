@@ -1,7 +1,7 @@
 <p align="center">
 black people don't hang themselves from trees. <br>
 </a>
-<img src="https://i.pinimg.com/1200x/c5/4e/f3/c54ef3d9db3c3b1909a6b51ba8654d23.jpg" align="center" width="260" height="260%""> <br>
+<img src="https://i.pinimg.com/1200x/6f/84/d0/6f84d06b9757f6bf12e4653c38e3fcc9.jpg" align="center" width="260" height="260%""> <br>
 <div align="center">
 <table>
     <tr>
