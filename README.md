@@ -1,18 +1,19 @@
 <p align="center">
-black people don't hang themselves from trees. <br>
+<img src="https://komarev.com/ghpvc/?username=catbaret&style=plastic&color=97abcc&base=4581&label= _ꔫ_ " />  <a href="https://cabaretnurse.atabook.org"> sign my ata </a> <br>
 </a>
-<img src="https://i.pinimg.com/736x/bc/7e/ec/bc7eecc16550eb606e06bf593bb6fbc6.jpg" align="center" width="260" height="260%""> <br>
 <div align="center">
 <table>
     <tr>
       <td>
-     kitty　/　amadeo 　heshe　9teen.
+              Cosette ou Kitty / Amadeo He/She 19.
  <br>
-    severely avoidant shut—in,   always iwc.
-      </td>
+          <img src="https://i.pinimg.com/1200x/73/d8/1c/73d81c0478744866b1d7e7452ebd050c.jpg" align="center" width="300" height="300%""> <br>
+    Severely Avoidant Stoner &&. Shut—in.
     </tr>
   </table>
     <details>
-<summary>　titles ♡ </summary>
+           <summary>　── inf. </summary>
+Hi it's 4am almost 5am. I am tired. I will write this tmrw. nyaa. </details>
+        <details>
+    <summary>　👀 </summary>
 <img src="https://i.ibb.co/SwwxQBfm/000choco4.png" align="center" width="230" height="230%""> <img src="https://i.ibb.co/0jrMx0xK/000choco3.png" align="center" width="243" height="243%""> <br> </details>
-<b>profile is a mega wip, working on it.</b> <br>
