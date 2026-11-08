@@ -7,7 +7,7 @@
       <td>
               Cosette ou Kitty / Amadeo He/She 19.
  <br>
-          <img src="https://i.pinimg.com/1200x/73/d8/1c/73d81c0478744866b1d7e7452ebd050c.jpg" align="center" width="300" height="300%""> <br>
+          <img src="https://i.pinimg.com/1200x/6e/6b/e9/6e6be9292002970f4b74bb8cbd2241ba.jpg" align="center" width="300" height="300%""> <br>
     Severely Avoidant Stoner &&. Shut—in.
     </tr>
   </table>
