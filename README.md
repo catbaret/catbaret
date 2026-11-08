@@ -12,8 +12,11 @@
     </tr>
   </table>
     <details>
-           <summary>　── inf. </summary>
-Hi it's 4am almost 5am. I am tired. I will write this tmrw. nyaa. </details>
+           <summary>　──　inf. </summary>
+( This is here until I finish my links, Hi. ) <br>
+➸　I follow a very "basic" dni, I just hide what I don't like. <br>
+    ➸　If you couldn't already tell, I suck at social interactions. <br>
+    That's all for now ok. i am friendly. </details>
         <details>
     <summary>　👀 </summary>
 <img src="https://i.ibb.co/SwwxQBfm/000choco4.png" align="center" width="230" height="230%""> <img src="https://i.ibb.co/0jrMx0xK/000choco3.png" align="center" width="243" height="243%""> <br> </details>
