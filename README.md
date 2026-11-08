@@ -17,3 +17,9 @@ Hi it's 4am almost 5am. I am tired. I will write this tmrw. nyaa. </details>
         <details>
     <summary>　👀 </summary>
 <img src="https://i.ibb.co/SwwxQBfm/000choco4.png" align="center" width="230" height="230%""> <img src="https://i.ibb.co/0jrMx0xK/000choco3.png" align="center" width="243" height="243%""> <br> </details>
+        <details>
+    <summary>　── heyy. </summary>
+gayer --->] yea me too but i hate women too #only1gender #onlymen <br>
+[space polycule🎵 rp dni] Hmmmm. Why is it That color (ur skin) <br>
+[hes almost #FFFFFF] Cause Armand has to be the uke! (not to Louis though>> 😉 <br>
+<br> </details>
