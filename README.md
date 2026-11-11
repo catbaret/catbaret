@@ -14,9 +14,9 @@
               <details>
            <summary>　　ᠵᡁデᡁ᠊╾　⌯⁍　brief inf. </summary>
 ( here until I finish my links. ) <br>
-➸　I hide what I don't like. <br>
-➸　I suck at socializing. ᗜˬᗜ <br>
-➸　Talk 2 me~ I am moeful. <br>
+➸　I hide/block what I don't like. #curatemyspace <br>
+➸　I suck at socializing &. stray from it. <br>
+➸　Talk 2 me doe~ I am moeful. Ok? <br>
 　this is all a big wip. hihihi. <br>
  </details>
     </tr>
