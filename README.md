@@ -9,10 +9,10 @@
               ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ <br>
                ᡕᠵデᡁ᠊╾━ Cosette ou Kitty  𖦏  He/She. <br>
                 Socially inept stoner &&. Shut—in. ♡ <br>
-               19yo ﹙ <i>12/11</i> ﹚ ( ´ཀ` ) #Gun bluff. <br>
+               19yo ﹙ <i>12/11</i> ﹚ ( ´ཀ` ) #Gun buff. <br>
               ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵ <br>
               <details>
-           <summary>　　　　ᠵᡁデᡁ᠊╾　　⌯⁍　　brief inf. ok? </summary>
+           <summary>　　　　ᠵᡁデᡁ᠊╾　　⌯⁍　　brief inf ok? </summary>
 ( here until I finish my links. ) <br>
 ➸　I hide/block what I don't like. #curated <br>
 ➸　I suck at socializing &. stray from it. <br>
