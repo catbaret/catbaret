@@ -12,7 +12,7 @@
                19yo ﹙ <i>12/11</i> ﹚ ( ´ཀ` ) #Gun bluff. <br>
               ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵ <br>
               <details>
-           <summary>　　　　ᠵᡁデᡁ᠊╾　　⌯⁍　　brief inf. </summary>
+           <summary>　　　　ᠵᡁデᡁ᠊╾　　⌯⁍　　brief inf. ok? </summary>
 ( here until I finish my links. ) <br>
 ➸　I hide/block what I don't like. #curated <br>
 ➸　I suck at socializing &. stray from it. <br>
