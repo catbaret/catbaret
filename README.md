@@ -6,11 +6,11 @@
     <tr>
       <td>
           <img src="https://i.pinimg.com/736x/77/1b/41/771b41b6b58eddfd115a8b30fe2cff28.jpg" align="center" width="260" height="200%"> <br>
-              ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ <br>
+              ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ <br>
                ᡕᠵデᡁ᠊╾━ Cosette ou Kitty ﹟ He/She. <br>
    Socially inept stoner &&. <br>
          Shut—in. (ᵕ—_—) Gun bluff. <br>
-              ︵︵︵︵︵︵︵︵︵︵︵︵︵ <br>
+              ︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵︵ <br>
               <details>
            <summary>　　ᠵᡁデᡁ᠊╾　⌯⁍　brief inf. </summary>
 ( here until I finish my links. ) <br>
