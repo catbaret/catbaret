@@ -1,11 +1,12 @@
 <p align="center">
+    im lowkey lazy and burntout as fuck. this is a wip.
 <img src="https://komarev.com/ghpvc/?username=catbaret&style=plastic&color=ffde82&base=6581&label= _ꔫ_ " />  <a href="https://cabaretnurse.atabook.org"> sign my ata </a> <br>
 </a>
 <div align="center">
 <table>
     <tr>
       <td>
-          <img src="https://i.pinimg.com/1200x/7d/3a/92/7d3a9233f2f44634593b19a86ad38279.jpg" align="center" width="265" height="200%"> <br>
+          <img src="https://i.pinimg.com/736x/44/72/9a/44729a1f2b1bcedba1dfbdcdbd8c9d86.jpg" align="center" width="265" height="200%"> <br>
               ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ <br>
                ᡕᠵデᡁ᠊╾━ Cosette ou Kitty  𖦏  He/She. <br>
                 Socially inept stoner &&. Shut—in. ♡ <br>
