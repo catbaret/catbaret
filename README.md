@@ -6,7 +6,7 @@
 <table>
     <tr>
       <td>
-          <img src="https://i.pinimg.com/736x/44/72/9a/44729a1f2b1bcedba1dfbdcdbd8c9d86.jpg" align="center" width="265" height="200%"> <br>
+          <img src="https://i.pinimg.com/736x/ab/8c/10/ab8c10565d9fda2fa52b97ab1af9254a.jpg" align="center" width="265" height="200%"> <br>
               ︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶︶ <br>
                ᡕᠵデᡁ᠊╾━ Cosette ou Kitty  𖦏  He/She. <br>
                 Socially inept stoner &&. Shut—in. ♡ <br>
