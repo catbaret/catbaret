@@ -15,9 +15,10 @@
     <img src="https://64.media.tumblr.com/eea0dda4f9015e75b2640ef05d815ae1/1a03627f8a62a116-56/s250x400/22d6033c215fec70212b03507029b73901d450f4.pnj" align="center" width="265" height="100%"> <br>
 </td>
 <td width="50%" align="center" valign="middle">
+       wip wip wip wip wip wip wip wip <br>
   <img src="https://i.ibb.co/r2z3Tsj7/000000000000000000000fyodividerbro.png" align="center" width="299" height="90%""> <br>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=1942+Report&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=Lift+up+the+receiver," alt="Typing SVG" /></a> <br>
-ᡕᠵデᡁ᠊╾━ <b>Cosette</b> ou <b>Kitty</b>  𖦏  He/She. <br>
+ᡕᠵデᡁ᠊╾━ <b>Cosette</b> ou <b>Kitty</b>      He/She. <br>
 Socially inept stoner &&. Shut—in. ♡ <br>
 19yo ﹙ <i>12/11</i> ﹚ ( ´ཀ` ) #Gun buff. <br>
 Satanist 𝄢 Sociology Student~  <br>
@@ -40,3 +41,4 @@ IWTV, BSD, &&. A lot of stuff. Ok? <br>
 <a href="https://github.com/kidbelos">lexi</a>  <a href="https://github.com/BARTSlMPSON">bean</a>  <a href="https://github.com/nataliescatorccio">nat</a>  <br>　<a href="https://github.com/yaoikat">adam</a>  <a href="https://github.com/lycanthrobby">noah</a>  <a href="https://github.com/TREVPHILIPS">trev</a> <br> very cool people, hi! ^⩊^ </details>
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312jtoobapz4qgguspqhr6lxf6pa&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false"> <br>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=1942+Report&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=I'll+make+you+a+believer." alt="Typing SVG" /></a> <br>
+wip wip wip wip wip wip wip wip <br>
