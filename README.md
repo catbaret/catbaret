@@ -42,3 +42,13 @@ IWTV, BSD, &&. A lot of stuff. Ok? <br>
 <img src="https://spotify-github-profile.kittinanx.com/api/view?uid=312jtoobapz4qgguspqhr6lxf6pa&cover_image=true&theme=natemoo-re&show_offline=true&background_color=121212&interchange=true&profanity=false&hide_remaster=false&bar_color=000000&bar_color_cover=false"> <br>
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=1942+Report&pause=1000&color=F7F7F7&center=true&vCenter=true&width=435&lines=I'll+make+you+a+believer." alt="Typing SVG" /></a> <br>
 wip wip wip wip wip wip wip wip <br>
+</td>
+</tr>
+</table>
+<p align="center">
+<details> 
+  <summary>　<img src="https://64.media.tumblr.com/7fbea00a80d4f8dcd89cdd5ddf8e7872/449ce3f8e030d4fe-45/s250x400/1a09b61fd93feb644175571472b0dc047d519f1c.gifv" align="center" width="75" height="70%"><br>
+  </a>
+</p>
+</summary>
+<img src="https://i.ibb.co/SwwxQBfm/000choco4.png" align="center" width="299" height="90%""> <img src="https://i.ibb.co/0jrMx0xK/000choco3.png" align="center" width="299" height="90%""> <br> </details>
